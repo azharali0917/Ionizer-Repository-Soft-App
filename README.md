@@ -1,4 +1,4 @@
-# OEM Air Puirifier Ionizer Soft App
+# OEM Air Purifier Ionizer Soft App
 
 Culture construction, health concerns development is very import for Olansi.
 We encourage every OLANSI employees and customers, suppliers, colleagues to communicate and cooperate well.
